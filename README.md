@@ -23,4 +23,4 @@ Next to learn: Data Visualization with Tableau / Power BI.
 ---
 
 ### Connect with Me
-* LinkedIn: [://linkedin.com](www.linkedin.com/in/amelia-fitri-sibarani-931946286)
+* LinkedIn: [Amelia Fitri Sibarani](https://linkedin.com)
